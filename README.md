@@ -4,4 +4,4 @@
 João Marcelo Lopes Fonseca
 Márcio da Silveira Rodrigues
 Melina Loreto
-Simone
+Simone Dalla Pozza Mahmud
